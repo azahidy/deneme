@@ -1,3 +1,1 @@
-şplkjhjklkjhjklkjkl
-lkjklpğişplkjkl
-# deneme
+Abdullah
